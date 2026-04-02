@@ -9,4 +9,4 @@ link for instructions.
 
 ## 2026-04-02
 
-What are your 3 fvorite places to eat in Davis, CA?
+What are your 3 favorite places to eat in Davis, CA?
